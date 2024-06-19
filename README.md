@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @kluesy the Admin of PvPForge and coding assistent
-- 📫 How to reach me: add me on discord Mooo#3599
+- 👋 Hi, I’m chaay the Admin of Feather.rip and coding assistent
+- 📫 How to reach me: add me on discord chaayyyyy_
 
 <!---
 kluesy/kluesy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
